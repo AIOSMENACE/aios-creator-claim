@@ -45,3 +45,7 @@ It is a *minimal and protective claim* to establish date and authorship.
 
 © 2025 Dennis Koos Voerman  
 AIOS System Designer | Independent Creator  
+---
+
+📬 For licensing, partnership or creator verification, contact:  
+**aiosmenace@gmail.com**

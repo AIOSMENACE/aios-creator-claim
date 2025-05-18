@@ -1,3 +1,4 @@
+![AIOS Creator Claim Banner](AIOS_Creator_Claim_Banner.png)
 
 # 📄 Creator Claim: Second-Layer Structure Built on GPT (May 2025)
 
